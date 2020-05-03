@@ -1,1 +1,0 @@
-# PROJECTJ README #
